@@ -1,5 +1,5 @@
 # 💫 About Me:
-learning Blazer and Flutter
+Blazer and SQL Server
 
 
 ## 🌐 Socials:
