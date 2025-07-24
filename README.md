@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **rako.info105@gmail.com**
 
-- 📄 Know about my experiences [https://emerald-whitney-44.tiiny.site](https://emerald-whitney-44.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
